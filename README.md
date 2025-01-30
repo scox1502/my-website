@@ -1,1 +1,2 @@
-this is for school plz dont edit it
+this is for school plz dont edit it...
+unless you wana help out
